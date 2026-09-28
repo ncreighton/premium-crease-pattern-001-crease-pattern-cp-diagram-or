@@ -1,0 +1,2 @@
+# premium-crease-pattern-001-crease-pattern-cp-diagram-or
+You're drowning in scattered crease patterns and diagrams, struggling to organize your origami references in a way that actually makes sense. The Crease Pattern &amp; CP Diagram Origami Lab transforms chaos into a structured, searchable creative workspace.  This isn't just a folder for your origami files—it's a purpose-built Notion template designed sp
